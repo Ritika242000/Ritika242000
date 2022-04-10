@@ -7,7 +7,8 @@
 - ⚡ Fun fact: There is an easy way and a hard way. The hard part is finding the easy way
 
 
-![image](https://user-images.githubusercontent.com/74190294/162628052-25e598af-0b08-4dda-afa0-6ea349e64db7.png)
+![image](https://user-images.githubusercontent.com/74190294/162628465-7a70f21f-c099-4f54-aec4-e72213ac46f0.png)
+
 
 
 

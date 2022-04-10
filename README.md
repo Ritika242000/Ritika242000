@@ -6,7 +6,9 @@
 - 😄 Pronouns: She / Her
 - ⚡ Fun fact: There is an easy way and a hard way. The hard part is finding the easy way
 
-![image](https://user-images.githubusercontent.com/74190294/162627934-34e82dcd-b0e2-457c-abbd-6ceb6310125d.png)
+
+![image](https://user-images.githubusercontent.com/74190294/162628052-25e598af-0b08-4dda-afa0-6ea349e64db7.png)
+
 
 
 
